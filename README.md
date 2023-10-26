@@ -1,3 +1,0 @@
-# varatros.github.io
-
-WIP
